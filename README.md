@@ -1,0 +1,1 @@
+# Variables-macOS-ORG_FG_PAT-41747274727
